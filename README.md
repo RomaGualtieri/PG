@@ -19,4 +19,5 @@ Captain (2000-2004)
 Underboss (2004-2007)   
 Captain (2007-present)
 
-![Paulie](https://static.wikia.nocookie.net/sopranos/images/c/c5/Paulie1.jpg/revision/latest?cb=20200715005523)
+
+![Paulie_Gualtieri](https://user-images.githubusercontent.com/125871581/220620449-c563e192-8414-490a-93ce-edef9faaaa55.jpg)
